@@ -1,1 +1,1 @@
-[![Watch the video](https://youtube.com/shorts/C2SsFUpfioE?feature=share)]
+[![Watch the video](https://i.sstatic.net/Vp2cE.png)](https://youtu.be/vt5fpE0bzSY)
